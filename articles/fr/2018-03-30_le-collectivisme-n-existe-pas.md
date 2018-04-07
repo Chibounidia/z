@@ -58,3 +58,36 @@ Mais de qui les seconds sont-ils les idiots utiles ?
 Pendant trente ans, les communistes occidentaux auront été les idiots utiles des apparatchiks soviétiques, lesquels eux-mêmes étaient les idiots utiles de Staline — idiots utiles d’inutiles psychopathes nihilistes ; Staline, lui, qu’aura-t-il accompli ? Les [progrès inimaginables](http://laissez-faire.ch/en/articles/who-says-we-need-roads/) du capitalisme et du [transhumanisme](http://laissez-faire.ch/fr/articles/le-transhumanisme-la-prochaine-etape-de-la-civilisation/) dont le socialisme prive ceux qu’il assassine, exploite et appauvrit, il en aura été privé aussi. En se bornant à rechercher un pouvoir sadique et fragile sur de pauvres diables à demi-mourants de faim[6](#footnote-6), le seul gagnant indiscutable et définitif ne peut être que la destruction, la mort, le néant[7](#footnote-7).
 
 Si les collectivistes stupides sont donc les idiots utiles des collectivistes psychopathes, au bout de la chaîne tous ne sont donc rien de plus que cela : des idiots utiles du néant.
+
+---
+
+[1](#fn-ref-1) L’individualisme méthodologique n’est pas un choix mais une nécéssité grammaticale dès lors que la pensée, la digestion, etc. sont des actes propres uniquement à des individus et non à une entité plus petite ou plus grande. Cf. _Liberpédia_, [Sujets de Droit](http://fr.liberpedia.org/Droit#Sujets_de_Droit).
+
+[2](#fn-ref-2) [Isabel Paterson](https://mises.org/library/humanitarian-guillotine) :
+
+> Further they assume that there is a collective right to impose taxes, for any purpose the collective shall determine.
+
+[Ayn Rand](http://en.liberpedia.org/Textbook_of_Americanism) :
+
+> Collectivism holds that man has no rights; that his work, his body and his personality belong to the group; that the group can do with him as it pleases, in any manner it pleases, for the sake of whatever it decides to be its own welfare. Therefore, each man exists only by the permission of the group and for the sake of the group.
+
+Pour une critique détaillée de la position randienne, voir _Liberpédia_, [Ayn Rand - Critique - Naïveté philosophique](http://fr.liberpedia.org/Ayn_Rand/Critique#Na.C3.AFvet.C3.A9_philosophique).
+
+[3](#fn-ref-3) Le « collectiviste » Pol Pot, par exemple, aura sacrifié _un quart_ du collectif cambodgien — pour le bien de ce même collectif cambodgien donc, _y compris du quart de morts_ ?
+
+[4](#fn-ref-4) Ce que François-René Rideau a identifié comme « [le sophisme _ad hoc_ derrière tout collectivisme](http://fare.tunes.org/liberalisme/regne_magie_noire.html#SUBSECTION_2.2) ».
+
+[5](#fn-ref-5) Exemples :
+
+> « The pastor was outraged to learn that, under the terms of their employment, Cuban doctors earn only about a quarter of the amount the Brazilian government pays Cuba for their services. » “When they signed up they agreed to the terms.” — [Cuban Doctors Revolt: ‘You Get Tired of Being a Slave’](https://www.nytimes.com/2017/09/29/world/americas/brazil-cuban-doctors-revolt.html)
+
+> In 1948 the Soviet government charged wholesalers 335 rubles for 100 kilograms of rye, but paid the kolkhoz roughly 8 rubles.\[6\] Nor did such prices change much to keep up with inflation. Prices paid by the Soviet government hardly changed at all between 1929 and 1953, meaning that the State came to pay less than one half or even one third of the cost of production.\[6\] — [Kolkhoz](https://en.wikipedia.org/wiki/Kolkhoz)
+
+[6](#fn-ref-6) Le principe du « panier de crabes », façon de penser de tous ceux qui en sont restés à la réussite _relative_, aux luttes de pouvoir primitives, tribales, de simples [animaux vivant dans un monde de jeu à somme nulle](http://laissez-faire.ch/fr/articles/pourquoi-le-parti-socialiste-ne-devrait-pas-exister/). Le résultat est généralement un _jeu à somme négative_, en spirale jusqu’à zéro : « Even ranking officials have run out of their (rationed) food supply » ([Huge Food Shortage In North Korea — people in Pyongyang start starving](http://www.freerepublic.com/focus/news/1991154/posts))
+
+[7](#fn-ref-7) [Nihilisme](http://laissez-faire.ch/fr/articles/de-l-impossibilite-du-non-liberalisme/) et [destruction](http://fr.liberpedia.org/Lib%C3%A9ralisme_%C3%A9conomique#Tout_acte_juste_est_cr.C3.A9ateur.2C_tout_acte_injuste_est_pure_destruction) plus ou moins assumés comme tels : décroissance, rejet du Droit, rejet de la richesse, etc.
+
+---
+
+authors: jan-krepelka
+categories: liberalisme, universalite-du-droit
