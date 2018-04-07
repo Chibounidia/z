@@ -1,5 +1,5 @@
 Le collectivisme n’existe pas
------------------------------
+===
 
 Le théorème d’Arrow a formalisé une évidence : si Paul veut aller au cinéma, Jacques au théâtre et Clothilde à l’opéra, que veulent « Paul, Jacques et Clothilde » ? Et même si Paul _et_ Jacques veulent aller au cinéma (ou, par exemple, violer Clothilde), que veut cette même « société-groupe-peuple-collectif-nation » composée de « Paul, Jacques et Clothilde » ?
 
